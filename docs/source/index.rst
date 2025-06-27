@@ -1,6 +1,8 @@
 How to Install Brother Printer to Computer in Minutes!
 ===================================
 
+`Click Here: Get the Live Brother Printer Support <https://jivo.chat/KlZSRejpBm>`_
+
 Installing a Brother printer to your computer doesn’t have to be a hassle. Whether you're using Windows or macOS, this step-by-step guide will help you connect, install drivers, and get your Brother printer ready to use in just a few minutes.
 
 Requirements Before Installation
